@@ -20,6 +20,8 @@ Here are some ideas to get you started:
 
  **<div align="center">  (●ˇ∀ˇ●)    在校大学生一枚</div>**
 
+ **<div align="center">  ⚡    目前正在实习ing</div>**
+
  **<div align="center">  🐱‍💻    目前主要学习java </div>**
 
  **<div align="center">💓      兴趣爱好是：看动漫 & coding & 游戏</div>**
