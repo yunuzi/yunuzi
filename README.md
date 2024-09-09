@@ -18,7 +18,7 @@ Here are some ideas to get you started:
 
 # yunuzi——info
 
- **<div align="center">  (●ˇ∀ˇ●)    在校大学生一枚</div>**
+ **<div align="center">  (●ˇ∀ˇ●)    上班ing</div>**
 
  **<div align="center">  ⚡    目前正在实习ing</div>**
 
